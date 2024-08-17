@@ -1,2 +1,2 @@
-# 此为纪念大航海家斐迪南·麦哲轮·田宇而生的网页
-# Powered By TianYu ZhaoKuo FengBoyu Wangzichan and me=)
+# 田宇尼亚的历史
+# the history of Tianyunya
